@@ -1,5 +1,13 @@
 # Aplicativos
 
+<b> ✅ VIRTUAL X 4G =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_4G.apk"><b>DOWNLOAD</b></a>
+
+<br/>
+
+<img src="https://i.ibb.co/7rmYs8z/Screenshot-20221009-142128-VIRTUAL-X-4-G.jpg" height="470" width="270">
+
+<br/><br/>
+
 <b> ✅ VIRTUAL X MIRACLE =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_MIRACLE.apk"><b>DOWNLOAD</b></a>
 
 <br/>
