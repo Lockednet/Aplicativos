@@ -1,6 +1,6 @@
 # Aplicativos
 
-<b>⚫ 1- (VIRTUAL_X_3) =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_3.apk"><b>DOWNLOAD</b></a>
+<b>1️⃣ -[VIRTUAL_X_3] =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_3.apk"><b>DOWNLOAD</b></a>
 
 <br/>
 
