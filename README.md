@@ -2,6 +2,8 @@
 
 <b> ✅ VIRTUAL X 4G =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_4G.apk"><b>DOWNLOAD</b></a>
 
+<b> ✅ VIRTUAL X 4G =</b> <a href="https://play.google.com/store/apps/details?id=com.virtualxconecta.vpn"><b>PLAYSTORE</b></a>
+
 <br/>
 
 <img src="https://i.ibb.co/WHZ5CFP/Screenshot-20221009-163837-VIRTUAL-X-4-G.jpg" height="470" width="270">
