@@ -1,6 +1,6 @@
 # Aplicativos
 
-<b> ✅ VIRTUAL X 4G =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_4G.apk"><b>DOWNLOAD</b></a>
+<b> ✅ VIRTUAL X 4G =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_4G.apk"><b>DOWNLOAD APK</b></a>
 
 <b> ✅ VIRTUAL X 4G =</b> <a href="https://play.google.com/store/apps/details?id=com.virtualxconecta.vpn"><b>PLAYSTORE</b></a>
 
@@ -10,7 +10,9 @@
 
 <br/><br/>
 
-<b> ✅ VIRTUAL X MIRACLE =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_MIRACLE.apk"><b>DOWNLOAD</b></a>
+<b> ✅ VIRTUAL X MIRACLE =</b> <a href="https://github.com/Lockednet/Aplicativos/raw/main/VIRTUAL_X_MIRACLE.apk"><b>DOWNLOAD APK</b></a>
+
+<b> ✅ VIRTUAL X MIRACLE =</b> <a href="https://play.google.com/store/apps/details?id=com.lockedmiracle.vpn"><b>PLAYSTORE</b></a>
 
 <br/>
 
